@@ -16,7 +16,7 @@ Indian Institute Of Technology, Ropar, Rupnagar
 M.Tech in Electronics & Communications Engineering
 CGPA: 7.9/10
 College of Technology, Pantnagar
-M.Tech in Electronics & Communications Engineering
+B.Tech in Electronics & Communications Engineering
 CGPA: 6.2/10
 
 
